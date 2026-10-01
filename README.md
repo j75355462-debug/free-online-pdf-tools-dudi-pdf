@@ -4,7 +4,7 @@
 ## 📧 Contact & Support
 
 - **Email:** contact@dudipdfeditor.in
-- **Alt Email:** j75355462@gmail.com
+
 - **WhatsApp:** +91 8278667192
 - **Website:** [https://dudipdfeditor.in/contact.html](https://dudipdfeditor.in/contact.html)
 
